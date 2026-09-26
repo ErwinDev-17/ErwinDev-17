@@ -3,7 +3,7 @@
 
 📍 Querétaro, México | ✉️ erwinmart17m@gmail.com | 📱 (+52) 446 107 9644  
 - [**Linkedin**](https://www.linkedin.com/in/erwin-javier-martinez-morales-157333294/)
-- [**GitHub**](https://github.com/ErwinDev-17).
+- [**GitHub**](https://github.com/ErwinDev-17)
 
 ---
 
